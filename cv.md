@@ -22,7 +22,7 @@ I have self-discipline. Open to new knowledge, sociable and good team player.
 Without experience
 
 ### Education 
-Bachelor by Аaculty of Radiophysics and computer technologies, BSU
+Bachelor by Аaculty of Radiophysics and computer technologies, BSU(2013-2017)
 
 ### English
 B1
